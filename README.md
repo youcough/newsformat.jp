@@ -1,0 +1,1 @@
+# newsformat.jp
